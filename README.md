@@ -1,2 +1,2 @@
 # heyloplaysminercaft.github.com
-minercaft real
+Hey! i just wanna point out that i have a minercaft server omg
